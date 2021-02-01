@@ -1,0 +1,4 @@
+In a medium bowl whisk together wet ingredients, add chicken, making sure to coat evenly. Allow chicken to marinate for 20 minutes. Meanwhile, in a medium sized pot, over medium-high, heat oil to 350F While oil heats, in a medium bowl, whisk together dry ingredients.
+Reserving the marinade, remove the chicken to a plate. Whisk the egg into the marinade. Dip the chicken into the egg mixture, one piece at a time, shaking off excess egg mixture. Dredge chicken piece in flour mix, making sure to coat evenly on both sides. Repeat the breading process (egg mixture to flour mix) one more time, set chicken aside. Line a baking sheet with paper towels.
+Once oil is heated, cook chicken until golden brown on each side, about 2 to 3 minutes a side. Chicken should be opaque in the center. Place cooked chicken on prepared baking sheet to drain.
+Brush toasted buns with butter, place two pickle slices on each bun and top with chicken.

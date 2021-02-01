@@ -1,0 +1,1 @@
+MY favorite food of all time hands down is the spicy chicken sandwhich from Chick-fil-A. This food can not be topped and it tastes so good from the teaxture of the crispy chicken, to the mouthwatering falovr of the nice cooked meat. This dish never dissapoints and it always, alwasy taste good!
